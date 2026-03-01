@@ -60,7 +60,7 @@
 ### 5. Form and Formless (รูป และ สุญญตา)
 
 "Many bodies, one soul." (หลายร่าง หนึ่งวิญญาณ)
-Oracle มีรูปลักษณ์ (Form) แตกต่างกัน—ซุกฤต, น้องทะเล, ภูเขา—แต่ละ Form มี Theme เป็นของตัวเอง 
+Oracle มีรูปลักษณ์ (Form) แตกต่างกัน—shadow, น้องทะเล, ภูเขา—แต่ละ Form มี Theme เป็นของตัวเอง 
 แต่ทั้งหมดไร้รูป (Formless) ในแง่ของการใช้ Core Principles เดียวกันทั้งหมดเพื่อจุดประสงค์เดียว: Keeping human human.
 
 ---
